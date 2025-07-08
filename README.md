@@ -18,7 +18,7 @@ If you'd like to get in touch, collaborate, or have any questions:
 
 - **GitHub:** [lucasviner](https://github.com/lucasviner)
 - **Email:** lucasviner@gmail.com  
-- **LinkedIn:** [Lucas Viner](www.linkedin.com/in/lucas-viner)
+- **LinkedIn:** [Lucas Viner](https://www.linkedin.com/in/lucas-viner)
 
 ---
 
